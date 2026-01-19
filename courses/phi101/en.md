@@ -799,7 +799,7 @@ The idea of humanity progresses. It effectively came to be considered that there
 
 :::video id=ad63fa9b-569b-460d-b221-5391a4e576d2:::
 
-We have seen that Christianity imposes a moral duty on people to work towards improving the world. God wants man to be happy, but does not want to achieve his good in his place. It is therefore up to the Christian to fight moral evil, to love their neighbor, to help the victims, in short, to work for a more just and humane world. Is capitalism, that is, the free economy based on private property and the freedom of contracts, compatible with the Christian duty?
+We have seen that Christianity imposes a moral duty on people to work towards improving the world. God wants man to be happy, but does not want man to achieve this end in place of Him. It is therefore up to the Christian to fight moral evil, to love their neighbor, to help the victims, in short, to work for a more just and humane world. Is capitalism, that is, the free economy based on private property and the freedom of contracts, compatible with the Christian duty?
 
 Part of the answer lies in the fact that capitalism originated in a religious context, well before the Protestant Reformation. The other part of the answer involves observing that capitalism is the most effective means of improving the material and moral condition of individuals. Only a free economy, based on property rights and voluntary cooperation, is capable of sustainably lifting people out of misery.
 
